@@ -26,5 +26,5 @@ Men Humoyun Narzullayev.
 
 ## 📫 Bog'lanish
 
-Email: your-email@gmail.com
-Telegram: @username
+Email: humoyunnarzullayev08@gmail.com
+Telegram: @narzullayevhumoyun7
